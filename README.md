@@ -1,4 +1,4 @@
-# free-ssr-v2ray-vpn
+# free-ssr-v2ray-vpn 上网导航
 
 项目一直在更新中，可以点个star，不怕上不了网
 
