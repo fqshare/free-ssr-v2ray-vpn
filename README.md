@@ -1,6 +1,6 @@
 # free-ssr-v2ray-vpn
 
-<h1 align="center">项目一直在更新中，可以点个star，不怕上不了网</h1>
+项目一直在更新中，可以点个star，不怕上不了网
 
 ## 免费节点（为了安全，用了emoji链接，点击就能进去了）
 [🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws(onessr)](http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws)<br>
