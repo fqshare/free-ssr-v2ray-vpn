@@ -4,10 +4,11 @@
 中国国内居民请自觉关闭并在24小时之内删掉与本项目相关的一切内容，如有问题，该项目作者概不负责</h4>
 
 ## 免费节点
-    http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws
+    [onessr](http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws)
     http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws
     http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws
     https://onessr.ml
+    [jsproxy1](https://proxy.fan.workers.dev/)
 
 ## 白嫖机场
 
