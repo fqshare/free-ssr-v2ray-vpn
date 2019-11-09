@@ -7,6 +7,7 @@
     http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws
     http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws
     http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws
+    https://onessr.ml
 
 ## 白嫖机场
 
