@@ -4,13 +4,17 @@
 
 ## 免费节点（为了安全，用了emoji链接，点击就能进去了）
 [🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws(onessr)](http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws)<br>
-[🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws](http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws)<br>
-[🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws](http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws)<br>
+[🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws(ssrtool需代理)](http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws)<br>
+[🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws(free-ss)](http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws)<br>
 
 ## 白嫖机场
+[🥞🥖🐋🍓🎷⚾🥑🐻.🍕💩.ws](http://🥞🥖🐋🍓🎷⚾🥑🐻.🍕💩.ws)<br>
 
-
-## 相关
+## 电报群
+[https://t.me/s/SSRlist](https://t.me/s/SSRlist)<br>
+[https://t.me/s/gyjclub](https://t.me/s/gyjclub)<br>
+[https://t.me/s/onessr](https://t.me/s/onessr)<br>
+[https://t.me/AC_FFree](https://t.me/AC_FFree)<br>
 
 ## 其他
 
