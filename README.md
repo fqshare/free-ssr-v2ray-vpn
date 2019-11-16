@@ -3,14 +3,19 @@
 项目一直在更新中，可以点个star，不怕上不了网🚀
 
 ## 免费节点（为了安全，用了emoji链接，点击后会做跳转）
-[onessr](http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws)<br>
+[🔥onessr](http://🏈🌙👇🌊🐵🐝☠♥.🍕💩.ws)<br>
 [ssrtool(需代理)](http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws)<br>
-[free-ss](http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws)<br>
+[👍free-ss](http://🍋🖕✊🎮🍑💯🐏🥑.🍕💩.ws)<br>
 [放牧的风(需代理)](http://👆🎩🍝🏳🎾🌂🐪🍪.🍕💩.ws)<br>
 [iShadow](http://🐏🐘🌯🍌🌾🍻🐙🎸.🍕💩.ws)
 <br><br>
 ## 白嫖机场
-[机场大全](http://🥞🥖🐋🍓🎷⚾🥑🐻.🍕💩.ws)<br>
+[🙋机场大全](http://🥞🥖🐋🍓🎷⚾🥑🐻.🍕💩.ws)<br>
+[极速vpn](http://🧀⛺🐌🎁🐁♠🏄🎪.🍕💩.ws)<br>
+[蘑菇云](http://🐩🐹🐥💣🐶🍵🦇👉.🍕💩.ws)<br>
+[阿狸云](http://🍕👑🍍🚣🐤🎡⌚🐹.🍕💩.ws)<br>
+[养鸡场](http://👆🕶🤢🐐🦐⭕⛺🌎.🍕💩.ws)<br>
+
 <br>
 ## 电报群
 [https://t.me/s/SSRlist](https://t.me/s/SSRlist)<br>
