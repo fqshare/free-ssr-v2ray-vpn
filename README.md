@@ -4,9 +4,15 @@
 
 ## 免费节点（为了安全，用了emoji链接，点击后会做跳转）
 [onessr🔥](http://🚣🐶🐊🐰🦈🖕🚰🐭.🍕💩.ws)<br>
-[ssrtool(需代理)](http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws)<br>
-[放牧的风(需代理)](http://👆🎩🍝🏳🎾🌂🐪🍪.🍕💩.ws)<br>
+[ssrtool](http://🤠🥖🐟🐔🍇🐶🍇🐈.🍕💩.ws)<br>
+[放牧的风](http://👆🎩🍝🏳🎾🌂🐪🍪.🍕💩.ws)<br>
 [iShadow](http://🐏🐘🌯🍌🌾🍻🐙🎸.🍕💩.ws)
+[go2free](http://🎾🏂🎮🌽🌚🐊🍻🐹.🍕💩.ws)
+
+[Free Vmess](http://🐵🌈👞🐢🐹💦⚽👍.🍕💩.ws)
+[Free Air](http://🤒🤖💯☠⚾🐬🏈💩.🍕💩.ws)
+
+
 <br><br>
 ## 白嫖机场
 [🛫极速vpn](http://🧀⛺🐌🎁🐁♠🏄🎪.🍕💩.ws)<br>
